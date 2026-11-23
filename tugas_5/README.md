@@ -1,0 +1,1 @@
+buat detail halaman
